@@ -2,7 +2,7 @@
 
 <p align= "center"> " <b> ozo </b>, is that you? LOL it must be ! "
 
-<p align= "center"> <img src="https://github.com/FILTH-CO/FILTH-CO/blob/495209679923e180c8f67d1825ada76a2bb1d419/Untitled578_20250529184115.png"> </p>
+<p align= "center"> <img src="https://github.com/FILTH-CO/FILTH-CO/blob/d425f8e46796df530bb48d62596d4597737378ae/Untitled578_20250529184531.png"> </p>
 
 <p align= "center"> <b> jake, laertes, ozolog </b> <img src= "https://64.media.tumblr.com/c4677cd2739662e650b9b54a730631d1/254aa231130777ad-e0/s75x75_c1/f7a44f69a1b486ba91f64b1c4681bd195e89a09b.gif" width= 20> he / hym / it </p>
 <p align= "center"> genderfaun <img src= "https://64.media.tumblr.com/95479d13d3ece4df8be483af0e2c66a4/254aa231130777ad-75/s75x75_c1/98f469d1fae6c2987127196cb5f5ef56d910be32.gif" width= 20> aroace </p>
