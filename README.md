@@ -4,6 +4,5 @@
 
 <p align= "center"> <img src="https://github.com/myung-bean/myung-bean/blob/80daeb2851c187c98a185e28964f16cb8b160dd5/IMG_5470.gif"> </p>
 
-<p align= "center"> laertes, jake, noah <img src= "https://files.catbox.moe/1shet8.gif" width= 20> he / hym / it </p>
-<p align= "center"> entp-a <img src= "https://files.catbox.moe/pyv20g.gif" width= 20> 04/14
-<p align= "center"> genderfaun <img src= "https://files.catbox.moe/6cxkhc.gif" width= 20> aroace </p>
+<p align= "center"> <b> laertes, jake, noah <img src= "https://files.catbox.moe/1shet8.gif" width= 20> he / hym / it </p>
+<p align= "center"> genderfaun <img src= "https://files.catbox.moe/6cxkhc.gif" width= 20> aroace </b> </p>
