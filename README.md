@@ -1,6 +1,6 @@
 <p align= "center"> <img src= "https://files.catbox.moe/gxv37e.gif" width= 25> <img src="https://komarev.com/ghpvc/?username=FILTH-CO&color=grey&label=""> <img src= "https://files.catbox.moe/kyadp4.gif" width= 25> </p>
 
-<p align= "center"> <img src="https://files.catbox.moe/cjsifg.gif" width= 500>
+<p align= "center"> <img src="https://files.catbox.moe/7ickhm.gif" width= 500>
 
 <p align= "center"> hello you can call me jake or noah ^_^ !! I SUPER DUPER ENCOURAGE NICKNAMES! for ex: you can call me jay or any of my kin/skin names if you prefer .. i am genderfaun and my pronouns are he / hym / it. uhh i also indentify as a entp and a 7w8 if thats something yre interested in ...
 
