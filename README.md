@@ -6,7 +6,7 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/2h6id5.gif" width= 450>
   
-<p align= "center"> i am a HUGE ihasafacelulz, lee myunggi and seong gihun kin .. i LOOVE roblox args, squid game and hamilton. some of my faves include uh thomas jefferson, marquis de lafayette and philip hamilton from hamilton the musical, ozolog1 and sean and ihasafacelulz from roblox args, lee myunggi, choi subong, hwang junho and past hwang inho/player 132 from squid game .. </p>
+<p align= "center"> i am a HUGE ihasafacelulz, lee myunggi and seong gihun kin .. i LOOVE roblox args, squid game and hamilton. some of my faves include uh thomas jefferson, marquis de lafayette and philip hamilton from hamilton the musical, ozolog1 and sean and ihasafacelulz from roblox args, lee myunggi, choi subong, hwang junho, namgyu and past hwang inho/player 132 from squid game .. </p>
 
 <p align= "center"> <img src="https://files.catbox.moe/9onlf8.gif" width= 450>
 
