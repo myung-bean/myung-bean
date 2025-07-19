@@ -6,7 +6,7 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/2h6id5.gif" width= 450>
   
-<p align= "center"> i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and seong gihun kin .. i also kin uh thomas jefferson, philip hamilton, park minsu, shuntaro chishiya, and ozolog1. i LOOVE roblox args, squid game, alice in borderland, and hamilton. some of my faves include uh thomas jefferson, marquis de lafayette and alexander hamilton from hamilton the musical, brandon6875935, sean and ihasafacelulz from roblox args, lee myunggi, choi subong, hwang junho, namgyu and past hwang inho/player 132 from squid game, hikari kuina, shuntaro chishiya, and ryohei arisu from alice in borderland  .. </p>
+<p align= "center"> i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and seong gihun kin .. i also kin uh thomas jefferson, philip hamilton, park minsu, shuntaro chishiya, and ozolog1. i LOOVE roblox args, squid game, alice in borderland, and hamilton. some of my faves include uh thomas jefferson, marquis de lafayette and alexander hamilton from hamilton the musical, brandon6875935, sean and ihasafacelulz from roblox args, lee myunggi, choi subong, hwang junho, namgyu and past hwang inho/player 132 from squid game, hikari kuina, shuntaro chishiya, chota segawa, and ryohei arisu from alice in borderland  .. </p>
 
 <p align= "center"> <img src="https://files.catbox.moe/9onlf8.gif" width= 450>
 
