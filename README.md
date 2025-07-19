@@ -2,7 +2,7 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/7ickhm.gif" width= 500>
 
-<p align= "center"> hello you can call me jake or noah ^_^ !! I SUPER DUPER ENCOURAGE NICKNAMES! for ex: you can call me jay or any of my kin/skin names if you prefer .. i am genderfaun and my pronouns are he / hym / it. uhh i also indentify as a entp and a 7w8 if thats something yre interested in ...
+<p align= "center"> hello you can call me jake or noah ^_^ !! I SUPER DUPER ENCOURAGE NICKNAMES! e.g. you can call me jay or any of my kins names if you prefer .. i am genderfaun and my pronouns are he / hym / it. uhh i also indentify as a entp and a 7w8 if thats something yre interested in ...
 
 <p align= "center"> <img src="https://files.catbox.moe/2h6id5.gif" width= 450>
   
