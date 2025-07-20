@@ -10,4 +10,4 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/9onlf8.gif" width= 450>
 
-<p align= "center"> i really enjoy interacting with people so dont be afraid to talk to me, crown me, or cuddle!!!! BUUT my social battery is really like on and off,, depending on the day .... tugs at collar. so um i dont like interacting first sometimes SO PLEASEE talk to me if we are friends i forget who people are easily if we dont talk that much .. oh and also fyi please iwcare when in groups dont leave me out and stuff ok .. and also in general dont belittle me. it makes me upset. </p>
+<p align= "center"> i really dont mind people usually so dont be afraid to crown me, hide, or cuddle!!!! BUUT my social battery is really like on and off,, tugs at collar. i dont like interacting first SO PLEASEE talk to me if we are friends i forget who people are easily if we dont talk that much .... oh and also fyi please iwcare when in groups dont leave me out and stuff ok .. and also in general dont belittle me. it makes me upset. </p>
