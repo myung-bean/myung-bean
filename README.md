@@ -6,7 +6,7 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/2h6id5.gif" width= 450>
   
-<p align= "center"> major interests are roblox args, squid game, alice in borderland, all of us are dead and hamilton. i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and seong gihun kin .. other (not as) heavy kins worth mentioning include uh philip hamilton, lee cheong-san, park minsu, shuntaro chishiya, and ozolog1.  my faves are uh thomas jefferson, lafayette and alexander hamilton from hamilton the musical, brandon6875935, sean and ihasafacelulz from roblox args, lee myunggi, choi subong, hwang junho, namgyu and past hwang inho/player 132 from squid game, hikari kuina, shuntaro chishiya, chota segawa, and ryohei arisu from aib, yoon gwi-nam, lee cheong-san, nam so-ju and han gyeong-su from aouad .. </p>
+<p align= "center"> major interests are roblox args, squid game, alice in borderland, all of us are dead and hamilton. i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and yoon  jongwoo kin .. other (not as) heavy kins worth mentioning include uh philip hamilton lee cheongsan, seong gihun, park minsu, and shuntaro chishiya.  my faves are uh thomas jefferson, lafayette and alexander hamilton from hamilton the musical, brandon6875935, sean and ihasafacelulz from roblox args, lee myunggi, choi subong, hwang junho, namgyu and past hwang inho/player 132 from squid game, hikari kuina, shuntaro chishiya, chota segawa, and ryohei arisu from aib, yoon gwi-nam, lee cheong-san, nam so-ju and han gyeong-su from aouad .. </p>
 
 <p align= "center"> <img src="https://files.catbox.moe/9onlf8.gif" width= 450>
 
