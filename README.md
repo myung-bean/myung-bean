@@ -6,7 +6,7 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/2h6id5.gif" width= 450> </p>
 
-i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and yoon  jongwoo kin .. other heavy kins include uh philip hamilton lee cheongsan, han gyeongsu, seong gihun, and park minsu. i really dont mind if you kin the same characters that i do.
+i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and yoon jongwoo kin .. other heavy kins include uh philip hamilton lee cheongsan, han gyeongsu, yeon sieun, ahn suho, seong gihun, and park minsu. i really dont mind if you kin the same characters that i do.
 
 <p align= "center"> <img src="https://github.com/myung-bean/myung-bean/blob/975eab044dbb860b027e2a66877023c674692e70/IMG_1828.gif" width= 450> </p>
 
