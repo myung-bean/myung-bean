@@ -6,11 +6,11 @@
 
 <p align= "center"> <img src="https://files.catbox.moe/2h6id5.gif" width= 450> </p>
 
-<p align= "center"> i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and yoon jongwoo kin .. other heavy kins include uh philip hamilton lee cheongsan, han gyeongsu, yeon sieun, ahn suho, seong gihun, and park minsu. i really dont mind if you kin the same characters that i do. </p>
+<p align= "center"> major interests are roblox args, squid game, alice in borderland, all of us are dead and hamilton. characters ill talk about alot are thomas jefferson, lafayette and alexander hamilton from hamilton, brandon6875935, sean and ihasafacelulz from roblox args, lee myunggi, hwang junho and past hwang inho/player 132 from squid game, hikari kuina, shuntaro chishiya, chota segawa, and ryohei arisu from aib, yoon gwinam, lee cheongsan, nam soju and han gyeongsu from aouad .. </p>
 
 <p align= "center"> <img src="https://github.com/myung-bean/myung-bean/blob/975eab044dbb860b027e2a66877023c674692e70/IMG_1828.gif" width= 450> </p>
 
-<p align= "center"> major interests are roblox args, squid game, alice in borderland, all of us are dead and hamilton. characters ill talk about alot are thomas jefferson, lafayette and alexander hamilton from hamilton, brandon6875935, sean and ihasafacelulz from roblox args, lee myunggi, hwang junho and past hwang inho/player 132 from squid game, hikari kuina, shuntaro chishiya, chota segawa, and ryohei arisu from aib, yoon gwinam, lee cheongsan, nam soju and han gyeongsu from aouad .. </p>
+<p align= "center"> i am a HUGE ihasafacelulz, lee myunggi, ryohei arisu, and yoon jongwoo kin .. other heavy kins include uh philip hamilton lee cheongsan, han gyeongsu, yeon sieun, ahn suho, seong gihun, and park minsu. i really dont mind if you kin the same characters that i do. </p>
 
 <p align= "center"> <img src="https://files.catbox.moe/9onlf8.gif" width= 450>
 
